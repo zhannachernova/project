@@ -17,15 +17,15 @@
 ### 6. [Зов предков](https://www.kinopoisk.ru/film/1060511/)
 ![Постер Зов предков](https://avatars.mds.yandex.net/get-kinopoisk-image/1773646/1f7ccff8-ce03-40eb-b4ab-bdafa44e945b/300x450)
 ---
-### 7. []()
-![Постер ]()
+### 7. [Неадекватные люди 2](https://www.kinopoisk.ru/film/1189859/)
+![Постер Неадекватные люди 2](https://avatars.mds.yandex.net/get-kinopoisk-image/1946459/5ac25517-a29a-4a71-9bf9-fc7f7d4cff48/300x450)
 ---
-### 8. []()
-![Постер ]()
+### 8. [Душа](https://www.kinopoisk.ru/film/775273/)
+![Постер Душа](https://avatars.mds.yandex.net/get-kinopoisk-image/1773646/35ba5d24-9d1f-4c1f-84af-d5245570faf8/300x450)
 ---
-### 9. []()
-![Постер ]()
+### 9. [Доктор Лиза](https://www.kinopoisk.ru/film/1254059/)
+![Постер Доктор Лиза](https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/74fc4009-6409-4adb-9da8-126169968ada/300x450)
 ---
-### 10. []()
-![Постер ]()
+### 10. [Дьявол всегда здесь](https://www.kinopoisk.ru/film/1072788/)
+![Постер Дьявол всегда здесь](https://avatars.mds.yandex.net/get-kinopoisk-image/1777765/162f3d42-87c4-43ae-a553-51462710d6b2/300x450)
 ---
